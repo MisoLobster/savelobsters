@@ -1,2 +1,8 @@
 # MisoLobster.github.io
-Hello world sup biiiish
+
+
+Save the Lobsters
+
+Or don't.
+
+Come on down to the price is right.
